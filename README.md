@@ -28,7 +28,7 @@ Innovate the digital space with state of art technology
 
 ### Learn More
 #### Contact
-[Website](https://vijistudio.com) | [Email](mailto:hello@vijistudio.com) | [Instagram](https://instagram.com/viewsbyviji)
+[Website](https://digitaldesigners.ca) | [Email](mailto:hello@vdigitaldesigners.ca) | [Instagram](https://instagram.com/digitaldesignersca)
 
 #### Follow
 [Twitter](https://twitter.com/ddesignersca) | [Facebook](https://facebook.com/digitaldesignersca) | [LinkedIn](https://linkedin.com/company/digitaldesignersca) 
